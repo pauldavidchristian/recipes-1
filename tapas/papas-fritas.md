@@ -8,4 +8,6 @@
 
 ## Directions
 
-Twist and shout
+1 Twist and shout
+2 Repeat
+
